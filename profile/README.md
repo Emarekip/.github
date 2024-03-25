@@ -1,12 +1,38 @@
-## Hi there 👋
+Emare - Tesettür Giyim
+Hoş Geldiniz!
 
-<!--
+Emare'ye, tesettür giyimde en son trendleri ve modelleri sunan online mağazamıza hoş geldiniz!
 
-**Here are some ideas to get you started:**
+Emare'de Neler Bulabilirsiniz?
 
-🙋‍♀️ A short introduction - what is your organization all about?
-🌈 Contribution guidelines - how can the community get involved?
-👩‍💻 Useful resources - where can the community find your docs? Is there anything else the community should know?
-🍿 Fun facts - what does your team eat for breakfast?
-🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
--->
+Abiye Tesettür Elbiseler
+Günlük Tesettür Elbiseler
+Tesettür Tunikler
+Tesettür Ceketler
+Tesettür Pantolonlar
+Tesettür Etekler
+Tesettür Şallar
+Tesettür İkizler
+Tesettür Aksesuarları
+Emare'yi Neden Tercih Etmelisiniz?
+
+Geniş ürün yelpazesi
+Uygun fiyatlar
+Kaliteli ürünler
+Güvenli alışveriş
+Hızlı teslimat
+Mükemmel müşteri hizmetleri
+Emare ile Alışveriş Yapmak Çok Kolay!
+
+Web sitemizi ziyaret edin veya mobil uygulamamızı indirin.
+Ürünlerimiz arasında gezinin ve beğendiğiniz ürünleri sepetinize ekleyin.
+Siparişinizi tamamlayın ve güvenli ödeme yöntemlerimizden biriyle ödemenizi gerçekleştirin.
+Siparişiniz en kısa sürede kargoya teslim edilecektir.
+Emare'de Her Zaman Daha Fazlası!
+
+Yeni ürünlerimizden haberdar olmak için bültenimize abone olun.
+Sosyal medya hesaplarımızı takip edin ve en son trendlerden haberdar olun.
+Müşteri hizmetlerimiz her zaman size yardımcı olmaya hazır.
+Emare ile Tesettür Giyimde Tarzınızı Yansıtın!
+
+Bizi Tercih Ettiğiniz İçin Teşekkür Ederiz!
