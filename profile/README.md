@@ -1,38 +1,16 @@
-Emare - Tesettür Giyim
-Hoş Geldiniz!
+EMARE'NİN YOLCULUĞU
 
-Emare'ye, tesettür giyimde en son trendleri ve modelleri sunan online mağazamıza hoş geldiniz!
+Emare, birkaç genç kadının hayali olarak başladı. Tesettürlerini ve bunun temsil ettiği değerleri çok önemseyen birkaç genç… Giysilerinin Allah’ın rızasına uygun olmasına özen gösteriyorlardı. Ancak moda endüstrisi, çoğu zaman onların bu ihtiyaçlarını karşılamıyordu; ya kötü kalıplı ya da modası geçmiş kıyafetler sunuluyordu. Modayı takip etmek isteyen tesettürlü genç kadınlar için uygun, modern ve kaliteli kıyafetler bulmak neredeyse imkansızdı.
 
-Emare'de Neler Bulabilirsiniz?
+Kızlar, bu sorunu farkettikten sonra kendi tarzlarını ve değerlerini yansıtan kıyafetler üretmek için kolları sıvadılar. Modayı, tesettürden ödün vermeden takip etmek istediler. Bu vizyonla, küçük atölyeler ve bağımsız tasarımcılarla çalışmaya başladılar. Amaçları, yüksek kaliteli ve tesettür ilkelerine uygun ürünler üretmekti. Bir markayı sıfırdan oluşturmak, hele ki bu kadar spesifik gereksinimleri olan bir marka kurmak kolay değildi.
 
-Abiye Tesettür Elbiseler
-Günlük Tesettür Elbiseler
-Tesettür Tunikler
-Tesettür Ceketler
-Tesettür Pantolonlar
-Tesettür Etekler
-Tesettür Şallar
-Tesettür İkizler
-Tesettür Aksesuarları
-Emare'yi Neden Tercih Etmelisiniz?
+İlk günlerde, ekibin her üyesi üretim sürecinin her aşamasında aktif rol aldı. Giysilerin ipliklerini bizzat temizlediler, düğmeleri elle diktikleri sayısız saatler harcadılar ve her parçayı mükemmelleştirmek için özveriyle çalıştılar. Doğru atölyeleri ve kumaş tedarikçilerini bulmak başlı başına bir mücadeleydi. Çoğu zaman, küçük ve yeni bir marka oldukları için büyük tedarikçiler ve üreticiler işbirliği yapmaları mümkün olmadı.
 
-Geniş ürün yelpazesi
-Uygun fiyatlar
-Kaliteli ürünler
-Güvenli alışveriş
-Hızlı teslimat
-Mükemmel müşteri hizmetleri
-Emare ile Alışveriş Yapmak Çok Kolay!
+İnanç, sabır ve kararlılıkla birlikte, güvenilir atölyeler ve yüksek kaliteli kumaş tedarikçileri ile işbirliği yapmaya başladılar. Bu sayede hem tesettüre uygun, hem modern, hem şık giysiler üretmeye başladılar.
 
-Web sitemizi ziyaret edin veya mobil uygulamamızı indirin.
-Ürünlerimiz arasında gezinin ve beğendiğiniz ürünleri sepetinize ekleyin.
-Siparişinizi tamamlayın ve güvenli ödeme yöntemlerimizden biriyle ödemenizi gerçekleştirin.
-Siparişiniz en kısa sürede kargoya teslim edilecektir.
-Emare'de Her Zaman Daha Fazlası!
+"Emare" ismi, iz, ipucu veya belirti demektir. 
 
-Yeni ürünlerimizden haberdar olmak için bültenimize abone olun.
-Sosyal medya hesaplarımızı takip edin ve en son trendlerden haberdar olun.
-Müşteri hizmetlerimiz her zaman size yardımcı olmaya hazır.
-Emare ile Tesettür Giyimde Tarzınızı Yansıtın!
+Bu isim rastgele seçilmemişti. Her giysi, onların özverisini, yolculuklarını ve tesettüre olan bağlılıklarını yansıtan bir iz taşımalıydı. Kısacası her bir kıyafetin ardında bir emare bırakmak istediler.
 
-Bizi Tercih Ettiğiniz İçin Teşekkür Ederiz!
+Bugün ise Emare, yenilikçi tasarımları, yüksek kaliteli kumaşları ve kusursuz işçiliği ile tesettür modasında lider konumuna gelmiş ve dünya çapında bir müşteri kitlesine sahip olmuştur.
+
